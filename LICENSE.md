@@ -1,4 +1,4 @@
-
+Enhance ClickUp for macOS with ClickUp for macOS elite Extension - widgets and database templates, the #1 extension. Includes widgets and database templates for a smoother
 
 
 
